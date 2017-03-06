@@ -1,0 +1,217 @@
+---
+postid: 8008
+title: Czy moje prognozy na 2015 rok się sprawdziły
+date: 2015-12-30T07:44:36+00:00
+author: rybinski
+layout: post
+guid: http://www.rybinski.eu/?p=8008
+permalink: /2015/12/czy-moje-prognozy-na-2015-rok-sie-sprawdzily/
+dsq_thread_id:
+  - 4445911570
+categories:
+  - Uncategorized
+tags:
+  - 2015
+  - forecast
+---
+Zgodnie z wieloletnią tradycją bloga na koniec roku sprawdzam czy moje prognozy sprzed roku się sprawdziły i przedstawiam nowe, na kolejny rok, tym razem w [tygodniku DoRzeczy](http://eprasa.pl/news/do-rzeczy/2016-01-10).
+
+Czy prognozy na 2015 roku się sprawdziły? Sprawdźmy. Poniżej oryginalny tekst prognozy z komentarzami po roku.
+
+<!--more-->
+
+Po kilku latach publikowania moich prognoz na kolejny rok postanowiłem zmienić ich formułę. Przyczyną tej decyzji jest moja następująca obserwacja. O ile w XX wieku scenariusze gospodarcze w znacznym stopniu zależały od mechanizmów rynkowych i głównych trendów, sytuacja uległa dramatycznej zmianie w XXI wieku. Teraz o przyszłości świata decyduję dwie grupy czynników:
+
+  * wypadkowa działań rządów, banków centralnych i tych, których Rothkopf nazywa Superklasą, a ja ich określiłem mianem banksterów, ponieważ wielcy finansiści są najsilniej reprezentowani w tej wąskiej i wpływowej grupie nadludzi;
+
+**_Rola banksterów rośnie, prognoza się sprawdziła_**
+
+  * światowy system gospodarczy został wprowadzony w stan niestabilnej równowagi, którą wkrótce opuści na skutek pojawiających się wstrząsów w kilku możliwych wyniarach opisanych w tej prognozie. O ile w XX wieku wstrząsy były typowymi czarnymi łabędziami, pojawiały się bardzo rzadko i miały dramatyczne, ale przejściowe skutki, w XXI wieku na skutek świadomej działności banksterów wstrząsy stały trwałym elementem politycznej, społecznej i gospodarczej rzeczywistości. To rok bez wstrząsów należy traktować jako czarnego łabędzia.
+
+**_W mijającym roku było wiele szoków wygenerowanych przez banksterów, prognoza się sprawdziła_**
+
+Pojawił się także nowy czynnik, który wynika z postępu technologicznego i gwałtownej cyfryzacji życia. Te trendy z jednej strony ułatwiają życie ludziom, ale także zwiększają skalę wpływów banksterów, co przejawi się między innymi w szybko rosnących nierównościach dochodowych w tych krajach, gdzie banksterzy mają największe wpływy, czyli w bogatych krajach cywilizacji Zachodu.
+
+**_Nierówności dochodowe rosną, prognoza się sprawdziła, dowodem jest najnowsza książka Martina Forda The Rise of the Robots.
+  
+_** 
+
+Zatem scenariusze w 2015 roku będą zdeterminowane przez wydarzenia w obszarze (geo)polityki, sił natury, działań militarnych i terrorystycznych, działań w cyberprzestrzeni, zagrożeń dla zdrowia człowieka, finansów i ekonomii oraz postępu technologicznego. Na te globalne trendy nałoży się rok wyborczy w Polsce. Spójrzmy, jakie są możliwe scenariusze w 2015 roku w kluczowych, wskazanych powyżej obszarach.
+
+ 
+
+**Trendy geopolityczne**
+
+W porównaniu z okresem minionych 25 lat bardzo silnie wzrosło znaczenie trendów geopolitycznych, które w coraz większym stopniu są reżyserowane poza USA. Zdaniem wielu analityków strategia odstraszania stosowana przez wiele dekad XX wieku przez USA poniosła porażkę w XXI wieku. Przyczyn tego stanu rzeczy jest bardzo wiele i obszerna dyskusja wykracza poza format tej prognozy, ale zwracam uwagę na jeden czynnik, który przez jakiś czas był niedoceniany, otóż postęp technologiczny i innowacyjność w działaniach militarno-politycznych są wykorzystywane przez wielu aktorów sceny geopolitycznej (nowe technologie i metody rażenia, wykorzystanie nowych mediów etc. do osiągania celów politycznych) i dochodzi do stopniowego ograniczania supremacji USA w tym obszarze. Na przykład zdolność armii USA to wykorzystania dronów do precyzyjnych ataków lub do ataków nuklearnych o ograniczonej skali,  albo pierwsze instalacje broni energetycznej należy zestawić z potencjałem innych ważnych aktorów globalnej sceny politycznej do wykorzystania dronów i innych nośników do ataków z użyciem broni masowego rażenia w dużych miastach. Zaś rozwiązanie stosowane z powodzeniem przez Izrael, czyli system obrony przeciwrakietowej pod nazwą Żelazna kopuła, chroniący prawie w 100 procentach miasta tego kraju przez arabskimi atakami rakietowymi jest nie do powtórzenia w innych krajach i lokalizacjach, wobec rosnących możliwości różnych grup militarnych lub terrorystycznych do dokonywania rozproszonych ataków w dużych miastach cywilizacji Zachodu lub w ważnych instalacjach tej cywilizacji o znaczeniu strategicznym (elektrownie atomowe i tradycyjne, zakłady chemiczne, centra informatyczne i finansowe).
+
+**_Prognoza się sprawdziła, w Paryżu.
+  
+_** 
+
+O ile powyższe elementy globalnych scenariuszy są raportowane przez media (wszyscy wiedzą o użyciu broni chemicznej w Syrii lub o ataku drona na Osamę), to inny, coraz ważniejszy wymiar teatru działań służb specjalnych głównych graczy pozostaje w cieniu. To są działania w cyberprzestrzeni. Czasami media informują o spektakularnych efektach, jak udany atak izraelskich służb specjalnych za pomocą wirusa komputerowego na irańskie instalacje służące do wzbogacania uranu. Ale 99 procent działań w tej sferze pozostaje w ukryciu. A ponieważ digitalizacja coraz szybciej wkracza a życie człowieka, można się spodziewać, że w kolejnych latach to właśnie cyberprzestrzeń stanie się głównym obszarem działań o charakterze militarnym i terrorystycznym i i zdarzenia w tej przestrzeni będą współkształtowały główne trendy geopolityczne.
+
+**_Prognoza się sprawdziła, wojna w cyberprzestrzeni się nasila
+  
+_** 
+
+W 2014 roku zintensyfikowały się też stare zagrożenia. Po aneksji Krymu przez Rosję, po wprowadzeniu sankcji i po spadku cen ropy, Rosja pogrąży się w głębokiej recesji w 2015 roku. Rezerwy dewizowe Rosji które szybko spadły z ponad 500 mld dolarów do poniżej 400 mld tylko pozornie są wysokie, jeżeli cena ropy utrzyma się w granicach 50 dolarów i sankcje zostaną utrzymane prze kolejny rok, Rosja może zostać doprowadzona do bankructwa na skutek paniki Rosjan i upadku rosyjskiego systemu bankowego. Jak zachowuje się niedźwiedź osaczony przez unijne i natowskie psy gończe już wiemy, widzieliśmy to w mijającym roku. Ale jak zachowa się niedźwiedź, które jest śmiertelnie ranny, ale ciągle bardzo silny. Przekonamy się o tym już niedługo.
+
+**_Prognoza się sprawdziła, Rosja jest w głębokiej recesji i podjęła działania wojenne w Syrii
+  
+_** 
+
+Ciągle otwarte pozostaje pytanie, czy proces stworzenia Państwa Islamskiego w Syrii i Iraku (PISI), który ma rangę regionalnego konfliktu nie przerodzi się w konflikt o charakterze globalnym. Bardzo istotna będzie rola Turcji, która z jednej strony jest członkiem NATO, a przez to członkiem cywilizacji Zachodu, a z drugiej strony przechodzi szybki proces de-sekularyzacji, a prezydent Erdogan wydaje się coraz silniej sympatyzować z PISI, zaś tajemniczy Sherko Omer w wywiadzie dla Newsweeka (tego światowego, a nie lokalnego, parówkowego) wskazał na fakt, że armia turecka logistycznie wspiera PISI, co zresztą nie dziwi, są wyznawcami tego samego islamu sunnickiego, a za swojego głównego wroga mają Kurdów, z którymi PISI walczy.
+
+**_Prognoza się sprawdziła, Turcja (kraj NATO) zestrzeliła samolot rosyjski, a konflikt w Syrii na skutek kryzysu migracyjnego zagraża przyszłości Unii Europejskiej
+  
+_** 
+
+Jak zwykle obie Koree oraz Japonia i Chiny będą pohukiwać na siebie nawzajem, i nie wiadomo czy za którymś razem konsekwencje nie będą dalej idące niż tylko wymiana not dyplomatycznych czy wezwanie ambasadorów na dywanik.
+
+**_Prognoza się nie sprawdziła, na razie trwa pohukiwanie.
+  
+_** 
+
+Poważne zmiany geopolityczne rysują się także w samej cywilizacji Zachodu. USA szykuje się do wyborów prezydenckich 2016 roku, czas pokaże czy pojawi się nowe przywództwo, na miarę wyzwań najbliższych lat. W Europie wśród większych krajów wybory parlamentarne odbędą się w Wielkiej Brytanii, Hiszpanii i Polsce. Wynik wyborów w Wielkiej Brytanii wskaże na prawdopodobieństwo wyjścia tego kraju z Unii Europejskiej, które wzrośnie jeżeli strefa euro ponownie pogrąży się w recesji, co oczywiście zwiększy skalę imigracji zarobkowej i socjalnej w Wielkiej Brytanii i dodatkowo umocni eurosceptyków. Ponadto przekonamy się czy populistyczna, lewicowa, anty-unijna i anty-natowska partia założona niecały rok temu przez hiszpańskich profesorów i przewodzona przez profesora nauk politycznych Pablo Iglesiasa – zwana PODEMOS – wygra wybory w Hiszpanii z przewagą pozwalająca na sformowanie rządu, co może na nowo zdefiniować strefy wpływów w Południowej Europie. Osobnym wyzwaniem będą wybory w Polsce, o czym więcej w części poświeconej naszemu krajowi.
+
+**_Prognoza sprawdziła się częściowo, antyunijne partie rosną w siłę, ale jeszcze nie przejęły pełni władzy. Co się odwlecze to nie uciecze.
+  
+_** 
+
+Coraz bardziej prawdopodobne staje się pojawienie nowych czarnych łabędzi w sferze geopolityki. W 2014 roku takim czarnym łabędziem była aneksja Krymu i i zajęcie Donbasu przez Rosję, co zostało przewidziane przez ś.p. prezydenta Kaczyńskiego. Co będzie takim czarnym łabędziem w 2015 roku, kandydatów jest wielu:
+
+  * jeżeli Rosja rozpocznie grę, którą Amerykanie nazywają chicken (to dwa samochody jadące na czołowe zderzenie, wygra ten, kto dużej wytrzyma, ale najgorszy jest remis, gdy obaj kierowcy wytrzymali do końca), to możemy być świadkami działalności zielonych ludzików w byłych republikach bałtyckich lub szerszego zastosowania broni energetycznej;
+  * jeżeli cena ropy pozostanie niska, możemy być zobaczyć działania mające na celu ograniczenie podaży ropy na rynkach światowych. Przykładami takich działań służb specjalnych może być spektakularna katastrofa geologiczna, która zatrzyma boom w gazie łupkowym lub zamachy na kluczowych polityków/władców w newralgicznych dla rynku ropy krajach, które mogą prowadzić do konfliktów zbrojnych. Jeżeli te działania będą skuteczne, cena ropy może gwałtownie wzrosnąć;
+  * jeżeli siły NATO zwiększą zaangażowanie w walce z PISI, prawdopodobnie wzrośnie ryzyko użycia brudnej broni lub nawet broni masowego rażenia w zamachach w ważnych krajach cywilizacji Zachodu. Na przykład wiadomo, że systemy sprawdzające, czy ktoś wnosi broń do ważnych obiektów (lotnisko, parlament, elektrownia etc.) mogą zostać zaatakowane przez hackerów i nie zadziałać prawidłowo w kluczowym momencie;
+  * **_Powyższe prognozy się sprawdziły, na szczęście, ale atak w Paryżu daje do myślenia
+  
+_** 
+  * wzrost aktywności rosyjskich sił zbrojnych na świecie może doprowadzić do groźnego skutkach incydentu, zaplanowanego lub przypadkowego;
+  * **_Prognoza się sprawdziła, Turcja zestrzeliła rosyjski samolot wojskowy
+  
+_** 
+  * wygrana eurosceptyków w wyborach w Wielkiej Brytanii i/lub Hiszpanii może być tak miażdżąca, że uruchomi się domino zdarzeń prowadzących do stopniowej dezintegracji Unii Europejskiej.
+  * **_Prognoza sprawdziła się częściowo._**
+
+**Siły natury**
+
+Od kilku lat piszę o tym, że nie doceniamy – jako ludzie – siły natury w przywracaniu równowagi na Ziemi. Te siły działają w długim okresie, więc czasami są niedostrzegalne z perspektywy jednego pokolenia, ale ponieważ aktywność i liczebność dominującego na Ziemi gatunku gwałtownie rośnie, również działania sił natury mogą ulec przyspieszeniu. Z oczywistych powodów nasza planeta nie będzie tolerowała 10 mld ludzi zachowujących się w sposób, w który zachowujemy się obecnie. Na nieszczęście dla rasy ludzkiej znakomicie ułatwiamy naturze działanie, skupiając się w wielkich miastach i latając coraz więcej samolotami między wielkimi miastami na różnych kontynentach, co pozwala na łatwy wybuch i szybkie przenoszenie się pandemii wirusowej lub bakteryjnej. Największa koncentracja ludzi występuje w miastach Azji (zarówno pod względem liczby ludzi jak i gęstości zaludnienia), co w wielu przypadkach jest skorelowane z biedą i brakiem odpowiedniej higieny.  Dlatego o ile epidemia Eboli w Afryce Zachodniej w 2014 roku sugeruje, że to Afryka może być źródłem przyszłej pandemii (Lagos, stolica Nigerii jest piątym największym miastem świata), to jednak wielość i wielkość miast Azji, oraz ich intensywne połączenia lotnicze z innymi kontynentami sugerują, że pandemia rozpocznie się w Azji. Oczywiście nie wiemy, jaki będzie miała charakter, jaki zasięg i kiedy wystąpi, ale właściwe pytanie nie jest CZY, ale KIEDY. Miejmy nadzieję, że nie w 2015 roku.
+
+**_Prognoza się sprawdziła, w 2015 roku (jeszcze) nie było światowej pandemii
+  
+_** 
+
+W 2014 roku obyło się bez potężnych naturalnych katastrof. Oczywiście słowo potężny jest względne, pamiętamy potężne tsunami, które zabiło 300,000 osób w Azji w 2004 roku. Ale jeżeli odniesiemy to do dwóch trzęsień ziemi w Antiochii, w 115 i 526 roku, gdy według szacunków za każdym razem zginęło ponad 250 tysięcy ludzi, czyli 0,13 procent ówczesnej populacji Ziemi to mamy inną perspektywę. Katastrofa w takiej skali musiałaby pochłonąć prawie 9 milionów istnień ludzkich z populacji przekraczającej 7 miliardów.  Firma reasekuracyjna Swiss Re opublikowała listę 10 wielkich miast najbardziej narażonych na katastrofy naturalne porównywalne do katastrof w Antiochii. Są to: Tokyo-Yokohama, Manila, Delta rzeki perłowej w Chinach, Osaka, Dżakarta, Nagoja, Kalkuta, Szanghaj, Los Angeles, Teheran. Jak widać ryzyko katastrof naturalnych o skali porównywalnej z tymi na początku ery nowożytnej jest skoncentrowane w Japonii (3), Chinach (2), oraz na Filipinach, w Indonezji, Indiach, Stanach Zjednoczonych i w Iranie.
+
+Podobnie mieliśmy szczęście i w 2014 roku nie było wielkich katastrof technologicznych, takich jak uderzenie tsunami w elektrownię atomową Fukushima. Ale dane o takich katastrofach są nieubłagane, żyjemy w okresie rosnącej ich liczby. W mojej ocenie należy wiązać przyszłe katastrofy technologiczne z rosnącą aktywnością terrorystyczną w cyberprzestrzeni. W 2015 roku możemy być świadkami pierwszych przykładów tego nowego, niebezpiecznego trendu.
+
+**_Prognoza się sprawdziła, na szczęście.
+  
+_** 
+
+**Działania militarne i terrorystyczne (w tym w cyberprzestrzeni)**
+
+Wikipedia wymienia tylko cztery aktualne konflikty zbrojne, w których liczba zabitych przekracza 10,000 osób rocznie, to wojna z kartelami narkotykowymi w Meksyku (12,000 zabitych w 2013), wojna w Syrii (73,000), wojna domowa w Iraku (28,000) i wojna domowa w południowym Sudanie (ponad 10,000). Jak na 7- miliardowa populację Ziemi, można śmiało powiedzieć, że lata 2013 i 2014 były prawie wolne od konfliktów militarnych, a te które trwały miały bardzo ograniczoną skalę, jak na historyczne standardy. Bardzo nietypowa było wojna na Krymie, która odbyła się bez ofiar w ludziach. Z powodu bardzo szybkiego postępu technologicznego można oczekiwać, na szczęście dla ludzkości, że taki stan rzeczy się prawdopodobnie utrzyma. Politycy nie muszą, tak jak kiedyś, doprowadzić do zabicia setek tysięcy czy milionów ludzi, żeby osiągnąć swoje cele, teraz mogą wykorzystać technologie satelitarne, zabójcze drony, agentów śpiochów etc. żeby dopaść liderów wrogiego obozu. Oczywiście jest to bardzo trudne w przypadku szefów organizacji terrorystycznych, głęboko ukrytych, na co wskazuje czas, jaki był potrzebny żeby dopaść Osamę. Ale zamach na przywódcę kraju cywilizacji Zachodu lub Wschodu, który ma dziesiątki oficjalnych spotkań w tygodniu może zostać dokonany z użyciem szerokiego wachlarza narzędzi, a innowacyjność grup terrorystycznych rośnie co najmniej tak szybko jak start-upów w Dolinie Krzemowej. Co prawda od czasów zabójstwa JFK i Martina Lutera Kinga nie było skutecznego zamachu na przywódcę świata Zachodu lub Wschodu takiego formatu, ale nie dlatego, że chroniące ich służby specjalne są tak sprawne (ten czynnik jest istotny, ale nie dominujący), tylko dlatego, że rachunek korzyści i strat był niekorzystny dla podejmujących takie działania. Ale sytuacja może ulec zmianie i metoda na drona zastosowana przez USA (lub podobna) może wyznaczyć nowe standardy zarządzaniu konfliktami między ważnymi aktorami sceny geopolitycznej.
+
+Działania z użyciem broni (konwencjonalnej, brudnej, masowego rażenia i cyber-broni) będą stanowiły coraz większe ryzyko dla scenariuszy geopolitycznych i mogą prowadzić do punktów zwrotnych. Wśród możliwych działań wysokim ryzyku i daleko idących skutkach można wymienić:
+
+  * zamachy z wykorzystaniem broni masowego rażenia;
+  * ataki bombowe na ważne obiekty, których funkcjonowanie jest kluczowe dla kraju lub regionu lub których zniszczenie może prowadzić do olbrzymiej liczby ofiar lub których zniszczenie może być szczególnie spektakularne w telewizji i mieć znaczenie symboliczne (parlament, elektrownia atomowa, zakłady chemiczne, wielkie symbole narodowe lub dzieła współczesnej architektury cywilizacji Zachodu – wielkie mosty, czy budynki);
+  * opanowanie systemów bezpieczeństwa w fabryce produkującej trujące chemikalia, co umożliwi wwiezienie bomby i detonację lub doprowadzenie do awarii w elektrowni atomowej lub sparaliżowanie systemu zarządzania ruchem kolejowym na dłuższy czas i doprowadzenie do szeregu katastrof kolejowych etc.
+  * sparaliżowanie lub nieodwracalne zniszczenie funkcjonowania ważnego elementu infrastruktury kraju za pomocą cyberataku (sektor energetyczny, sektor finansowy, ważne bazy danych, systemy odpowiadające za wyniki demokratycznych wyborów etc.).
+
+**_Prognoza się nie sprawdziła_**
+
+Do potencjalnych działań w cyberprzestrzeni należy dodać także te prowadzone przez głównych rządowych aktorów sceny geopolitycznej. Takie działania mają kilka poziomów:
+
+  * Pasywny monitoring: przykładem takiego działania było podsłuchiwanie przez służby specjalne USA Angeli Merkel, lub podsłuchiwanie przez służby specjalne Wielkiej Brytanii uczestników szczytów unijnych, żeby poprawić pozycję negocjacyjną Wielkiej Brytanii;
+  * Zarządzanie obiegiem informacji w celu osiągania strategicznych celów. Takim przykładem może być skandal z WikiLeaks, który przez osoby naiwne może być widziany jako triumf wolności słowa i tym podobne bzdury, a w praktyce z pewnością był częścią operacji służ specjalnych jednego lub kilku głównych aktorów sceny geopolitycznej;
+  * Selektywne pozyskiwanie ważnych informacji: to powszechnie stosowane dzisiaj szpiegostwo w cyberprzestrzeni stosowane przez wszystkich aktorów sceny geopolitycznej;
+  * Selektywne działania destrukcyjne lub prewencyjne: przykładem może być znaczące opóźnienie irańskiego programu nuklearnego przez wirusa komputerowego prawdopodobnie opracowanego przez izraelskie służby specjalne;
+  * Masowy atak w cyberprzestrzeni: to na przykład blokada serwerów agencji rządowych na skutek działania rosyjskich hackerów prawdopodobnie działających na zlecenie służb specjalnych tego kraju lub odcięcie Korei Północnej od Internetu.
+
+**_Prognoza częściowo się sprawdziła_**
+
+Podanie tego katalogu możliwości, po które mogą sięgnąć terroryści i rządy nie oznacza, że takie zdarzenia będą miały miejsce w 2015 roku, tylko pokazuje, że istnieje cała sfera życia, o której wiemy bardzo mało, a w której służby specjalne i terroryści toczą ze sobą, czy między sobą, potężną wojnę, codziennie, a skutki tej wojny mogą z czasem być dramatyczne dla wielu osób, które znajdą się w złym miejscu w złym czasie.
+
+Uważam Szwajcarów za jeden z mądrzejszych narodów świata, o czym świadczy ich czołowa pozycja w wielu rankingach rozwoju, zamożność i świetnie funkcjonująca demokracja bezpośrednia. Ten mądry naród w okresie zimnej wojny zaminował kilkanaście tysięcy obiektów na granicy Szwajcarii z innymi krajami (mosty, tunele etc.), aby w momencie agresji spowolnić przeciwnika i lepiej przygotować się do obrony. W 1975 roku rozpoczęli proces stopniowego usuwania ładunków, który został zakończony dopiero w mijającym roku. Ludzie przekraczający niektóre mosty na Renie (na przykład znany drewniany most Bad Sackingen) nie byli świadomi, że jadą po zaminowanych obiektach. To świadczy o tym, że ryzyko tradycyjnych konfliktów zbrojnych w Europie jest bliskie zero. Ale wraz z małą aktywnością w tradycyjnej sferze działań militarnych prawdopodobnie zobaczymy znaczny wzrost aktywności w obszarze innowacyjnych działań militarnych (cyber-broń, drony, etc.).
+
+Warto tez pamiętać o silnych zależnościach pomiędzy sferą militarno-terrorystyczną i rynkami finansowymi, które mogą bardzo silnie reagować na wiadomości o nowych atakach lub eliminacji ryzyka takich ataków. Z pewnością takie okazje, jeżeli będą, zostaną wykorzystane do wygenerowania olbrzymich zysków na rynkach walutowych i rynkach kapitałowych przez grupy organizujące działania terrorystyczne lub militarne, co uruchomi błędne koło, bo dzięki tak pozyskanym środkom będą mogli jeszcze skuteczniej finansować dalszą działalność. Na przykład, jeżeli ktoś wie o kilka godzin wcześniej o planowanym zamachu na ważne centrum finansowe, i jeżeli ten zamach będzie udany, to może bez ryzyka zarobić miliardy dolarów (czy innych walut) zajmując odpowiednie pozycje na rynkach finansowych.
+
+**_Nie wiemy czy prognoza się sprawdziła_**
+
+**Zagrożenia dla zdrowia człowieka**
+
+Epidemie chorób zakaźnych były dość częstym zjawiskiem w historii ludzkości, najwięcej zgonów spowodowały epidemie dżumy, cholery i ospy. W latach 1918-1920 na skutek pandemii grypy Hiszpanki na całym świecie zginęło około 75 milionów ludzi, czyli ponad 4 procent populacji. Epidemia w podobnej skali dzisiaj pochłonęłaby ponad 300 milionów ofiar. Trzecia pandemia cholery  w latach 1852-60 zabiła ponad milion osób w Rosji, dżuma w latach 1346-1350 zabiła między 30 a 70 procent populacji Europy, a epidemia ospy w latach 165-180 uśmierciła 30 procent populacji Europy, Zachodniej Azji i Północnej Afryki. W minionych 100 latach, od czasu epidemii Hiszpanki, nie było pandemii o takiej skali. Z jednej strony człowiek stał się o wiele bardziej skuteczny w walce z epidemiami, ale z drugiej strony globalizacja, dramatyczny wzrost gęstości zaludnienia i migracje do miast doprowadziły do powstania środowiska, które jest podatne na wybuchy pandemii, szczególnie w biednych krajach gdzie standardy higieny i żywienia są niskie.
+
+Epidemia Eboli, która wybuchła w Afryce w 2013 roku pochłonęła prawie 8000 istnień ludzkich, dżuma na Madagaskarze w 2014 roku zabiła 40 osób, epidemia świńskiej grypy w 2009 roku pochłonęła między 120 a 400 tysięcy istnień ludzkich, a epidemia cholery zabiła w Zimbabwe prawie 5000 osób w latach 2008-2009. Zatem na razie wybuchy groźnych chorób zakaźnych, które pojawiają się w różnych geografiach co roku i czasami przyjmują postać epidemii, są bardzo ograniczone.  Ale powracam do mojego przekonania, że natura uruchomi siły, które ograniczą skale ekspansji człowieka, i że najbardziej prawdopodobnym mechanizmem, który zadziała będzie światowa pandemia groźnej choroby, być może mutacji jakiegoś wirusa, który będzie się przenosił drogą kropelkową i spełniał inne warunki konieczne do wybuchu pandemii.
+
+ 
+
+**Trendy w obszarze finansów i ekonomii**
+
+Te trendy są najlepiej opisane i omówione w mediach, więc tutaj tylko krotko je podsumujemy. Od recesji 2009 roku nieprzerwanie trwa interwencja głównych banków centralnych w postaci obniżenia stóp procentowych do zera (a nawet poniżej zera) i druku pieniądza w postaci operacji skupu różnych aktywów finansowych przez banki centralne. Efekty tych działań były różne w różnych geografiach, w krajach anglosaskich (USA, Wielka Brytania) udało się doprowadzić do powrotu solidnego wzrostu gospodarczego, ale za cenę pojawienia się kolejnych baniek na prawie wszystkich(!) rynkach aktywów, które będą pękały, ale momentu pęknięcia takiej bańki nie da się precyzyjne przewidzieć. Z wysokim prawdopodobieństwem zdarzy się to w ciągu kilku najbliższych lat, a być może już w 2015 roku. W krajach o innej kulturze, tradycji i historii te działania banków centralnych zakończyły się porażką, czyli w strefie euro i w Japonii. Strefa euro jest w stagnacji a Japonia w recesji, mimo zerowych stóp procentowych i druku pieniądza. Bank i rząd Japonii oraz EBC planują kolejną fazę druku pieniądza, zgodnie z absurdalną zasadą, że jak jakieś lekarstwo nie działa, a nawet szkodzi, to podajmy je ponownie tylko w większej dawce. Skutki takiej polityki pieniężnej w Europie i w Azji będą dobre dla koniunktury w krótkim okresie i tragiczne w kolejnych latach.
+
+W Rosji i na Ukrainie będzie głęboka recesja w 2015 roku, PKB spadnie o 5-10 procent. Pogarsza się sytuacja gospodarcza w Chinach, widać załamanie na rynku nieruchomości i coraz poważniejsze kłopoty wielu instytucji finansowych w tym kraju. Z recesją zmaga się Brazylia. Wzrost gospodarczy w USA może spowolnić, gdy dojdzie do pęknięcia baniek na rynkach aktywów. W sumie otoczenie gospodarcze Polski będzie negatywnie lub bardzo negatywnie oddziaływało na perspektywy rozwoju kraju w 2015 roku.
+
+Rynki finansowe prawdopodobnie wejdą w okres silnych wahań w 2015 roku. Stagnacja i recesja w Europie oraz perspektywa druku euro przez EBC zestawiona z solidnym wzrostem w USA i perspektywą podwyżek stóp procentowych przez Fed powodują, że globalni inwestorzy stadnie sprzedają euro i kupują dolary, racjonalnie oczekując silnego umocnienia dolara. Tak zapewne będzie i dolar może osiągnąć nawet parytet wobec euro, ale ponieważ wszyscy zaczynają tak inwestować, od czas do czasu będą okresy gwałtownego osłabienia dolara, gdy pojawią się nieoczekiwane dane lub zdarzenia, których będzie dużo w 2015 roku. Trend umocnienia dolara może też osłabnąć gdy Fed będzie opóźniał podwyżki stóp procentowych, których oczekuje się w połowie 2015 roku, ale mogą pojawić się później.
+
+**_Prognoza się sprawdziła_**
+
+Prognozy wskazują na utrzymanie się ceny ropy na obecnych poziomach, ale zmienność cen ropy będzie duża, szczególnie w sytuacji, gdy zostaną podjęte działania o charakterze terrorystycznym wspomniane na początku tego opracowania.
+
+W sumie prawdopodobnie czeka nas rok silnego dolara, taniej ropy, druku jenów i euro, zerowych stóp procentowych w największych krajach i wysokiej zmienności na giełdach z przewagą spadków nad wzrostami. Wzrośnie ryzyko powrotu światowego kryzysu finansowego, jeżeli zaczną pękać banki spekulacyjne na rynkach aktywów.
+
+**_Prognoza się sprawdziła_**
+
+Takie środowisko finansowe będzie sprzyjało gwałtownym przepływom finansowym, może pojawić się odpływ kapitału z rynków wschodzących, z silnymi negatywnymi konsekwencjami dla krajów solidnie zadłużonych, dla tych, które mają duże deficyty obrotów bieżących i dla tych, które są zależne od eksportu surowców energetycznych.
+
+**_Prognoza się sprawdziła_**
+
+** Trendy w obszarze technologii**
+
+W tym krótkim opracowaniu nie ma miejsca na szersze omówienie trendów technologicznych. Warto jednak wspomnieć, że te trendy działają w dwóch kierunkach. Postęp czyni człowieka bardziej odpornym na ryzyka opisane powyżej (na przykład w zakresie ochrony przed epidemiami), ale jednocześnie daje nowe możliwości grupom interesów wpływania na losy światowej gospodarki, o czym też pisałem powyżej.
+
+Chciałbym odnotować, że obserwujemy olbrzymie przyspieszenie w dziedzinie cyfryzacji, pojawiają się bardzo zaawansowane zastosowania technik w obszarze Big Data, dynamicznie rozwija się Internet rzeczy, wymiana informacji maszyna-do-maszyny przekracza wymianę informacji człowiek-do-cokolwiek, komputery stają coraz bardziej inteligentne, a prawo Moora cały czas ma zastosowanie. Na razie zachłystujemy się pozytywnym wpływem tych technologii na nasze życie, jest łatwiej, taniej, wygodniej etc. Ale zupełnie pomijamy w analizach zagrożenia dla ludzkości, które wiążą się z tym trendem powszechnej cyfryzacji. Te zagrożenia będą się stopniowo ujawniały w kolejnych latach, być może pierwsze wydarzenia, które potrząsną opinią publiczną będą miały miejsce już w 2015 roku. Ale nie oczekuję zmiany trendów, cyfryzacja życia pozwala zarabiać biliony dolarów i chęć realizacji tego zysku przeważy nad głosami rozsądku, przestrzegającymi przez ryzykami związanymi z chaotyczną cyfryzacją życia ludzkiego. Te ryzyka są ekonomiczne (dyskryminacja cenowa osób poddanych cyfrowej analizie, na przykład nie ćwiczysz regularnie, nie dostaniesz ubezpieczenia, lub będzie bardzo drogie), fizyczne (maszyna będzie lepiej wiedziała od człowieka co jest dla niego dobre), egzystencjalne (maszyny działające na zasadzie zerowych kosztów krańcowych pozbawią pracy miliony ludzi, od pracowników w centrach usług wspólnych po lekarzy i tłumaczy).
+
+**_Prognoza się sprawdziła, skala tzw. niewolnictwa cyfrowego i koncentracja władzy i wpływów w rekach cyfrowych gigantów narasta
+  
+_** 
+
+Dla Polski oznacza to, że trzeba realizować świadomą strategię (na poziomie kraju, regionu i rodziny) pozyskiwania kompetencji w tych obszarach, które będą się rozwijały na skutek postępu technologicznego (szczególnie cyfryzacji) i nie inwestować w obszarach, które wkrótce znikną (centra prostych usług wspólnych w Krakowie czy Wrocławiu), lub pakownie Amazona, gdzie ludzi wkrótce zastąpią coraz sprawniejsze i tańsze roboty.
+
+**Jaki będzie 2015 rok dla Polski?**
+
+Podsumujmy, oczekuję, że otoczenie międzynarodowe będzie dla Polski niesprzyjające w 2015 roku. Dojdzie do spowolnienia światowego wzrostu gospodarczego, przy czym to spowolnienie będzie większe niż przeciętnie u głównych partnerów handlowych Polski, a niektórzy z nich doświadczą recesji lub głębokiej recesji.
+
+**_Prognoza się sprawdziła_**
+
+W sposób nieprzewidywalny będą się pojawiały co jakiś czas zdarzenia ze sfery geopolitycznej, militarnej, działań sił natury, zagrożenia dla zdrowia ludzi lub szoki finansowe, które będą generowały dodatkowe ryzyka dla stabilnego rozwoju Polski, do tego stopnia, że te ryzyka należy uwzględnić w głównym scenariuszu rozwoju wydarzeń.
+
+Ważnym wydarzeniem, które może mieć istotny wpływ na sytuację w Polsce, są wybory parlamentarne (październik) i prezydenckie (maj). Badania opinii publicznej oraz wyniki wyborów do euro parlamentu i samorządowych wskazują na możliwość utrzymania władzy przez obecną koalicję PO-PSL, tym bardziej, że po raz pierwszy w historii III Rzeczpospolitej pojawiły się uzasadnione wątpliwości dotyczące rzetelności przeprowadzonych wyborów. Tak jak pisałem wcześniej, serwery pełniące różne funkcje, w tym także te liczące głosy, mogą być pod wpływem działań grup hackerskich działających na zlecenie różnych aktorów sceny geopolitycznej. Ale spodziewane pogorszenie koniunktury w Polsce może prowadzić do wzrostu popularności opozycji nad koalicją rządzącą, co może być trudne do zniwelowania przy pomocy obniżek stóp procentowych i ekspansywnej polityki fiskalnej. Oczekuję, że wzrost gospodarczy w Polsce wyniesie około 1,5 procent, co przy wsparciu medialnym powinno wystarczyć koalicji rządzącej do utrzymania władzy, ale jeżeli wzrost spadnie poniżej 1 procenta, władzę przejmie opozycja. Wybory prezydenckie oczywiście wygra obecny prezydent Komorowski.
+
+**_Prognoza się nie sprawdziła, opozycja wygrała mimo wzrostu gospodarczego powyżej 3 procent, co oznacza że ludzie w końcu przejrzeli na oczy.
+  
+_** 
+
+Niski wzrost gospodarczy spowoduje, że utrzyma się presja deflacyjna w Polsce, co będzie tylko częściowo neutralizowane znacznym spadkiem wartości złotego do walut obcych na skutek dopływu kapitału z rynków wschodzących. Oczekuję, że Polska niestety nie utrzyma statusu kraju, który bardziej przypomina kraje rozwinięte, spadek tempa wzrostu obnaży nasze słabości strukturalne i efekty wzrostu globalnej awersji do ryzyka będą w Polsce takie jak w typowych krajach rozwijających się: spadek wartości lokalnej waluty, wzrost długoterminowych rynkowych stóp procentowych (pomimo spadku stóp banku centralnego). Mimo że skala osłabienia złotego może być duża, z powodu deflacji nie będzie potrzeby obrony wartości złotego przez zmianę polityki pieniężnej na bardziej restrykcyjną (co na przykład musiała zrobić Rosja w grudniu 2014 roku), zaś skala osłabienia złotego nie będzie na tyle duża, żeby stanowiła zagrożenie dla stabilności polskiego systemu bankowego.
+
+**_Prognoza się sprawdziła, mamy deflację i słabego złotego jednocześnie.
+  
+_** 
+
+Niski wzrost w Polsce spowoduje, że polskie firmy coraz aktywniej będą wychodziły na inne rynki, a ponieważ Rosja i Ukraina będą w głębokiej recesji, a strefa euro w stagnacji, coraz częściej wybór padnie na inne kraje i kontynenty, co będzie bardzo pozytywne w długim okresie, bo pojawimy się mocniej na rynkach, które mają wysoki długoterminowy potencjał wzrostu.
+
+**_Prognoza się sprawdziła_**
+
+Pomimo słanej sytuacji gospodarczej w Polsce będą miały miejsce inne pozytywne trendy. Po siedmiu latach chudych dla innowacyjności, rozpocznie się siedem (lub więcej) lat tłustych, innowacyjność w Polsce zacznie rosnąć, prawdopodobnie dość szybko, co z czasem będzie stopniowo ograniczało ryzyka z którymi musimy się zmierzyć, w tym ryzyko uderzenia demograficznego tsunami. Innowacyjne modele biznesowe wdrażane przez polskie firmy poprawią dynamikę ekspansji międzynarodowej polskich firm. Kilka polskich firm odniesie spektakularne globalne sukcesy w 2015 roku.
+
+**_Prognoza się sprawdziła_**
+
+Zła sytuacja gospodarcza w powiązaniu ze stopniowym ograniczaniem inwestycji OFE na giełdzie w Polsce spowoduje, że spadki będą częstsze niż wzrosty i na koniec 2015 roku WIG20 znajdzie się w pobliżu lub poniżej 2000 punktów (spadek o 15-20 procent w skali roku).
+
+**_Prognoza się sprawdziła_**
+
+Zła sytuacja w finansach publicznych spowoduje, że niezależnie od wyniku wyborów parlamentarnych rządząca większość rozpocznie realizację planów prowadzących co całkowitej likwidacji OFE.  Polakom ponownie wmówi się, że to dla ich dobra.
+
+**_Prognoza zaczyna się sprawdzać_**, **_ale jeszcze za wcześnie na definitywną ocenę._**

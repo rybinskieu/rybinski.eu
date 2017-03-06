@@ -1,0 +1,30 @@
+---
+postid: 5762
+title: 'Warszawa – strefa płatnego parkowania dotarła do Nowego Dworu i Konstancina'
+date: 2013-04-02T16:04:02+00:00
+author: rybinski
+layout: post
+guid: http://www.rybinski.eu/?p=5762
+permalink: /2013/04/warszawa-strefa-platnego-parkowania-dotarla-do-nowego-dworu-i-konstancina/
+dsq_thread_id:
+  - 3161203822
+categories:
+  - Uncategorized
+tags:
+  - business class
+  - fee
+  - parking
+  - revenues
+  - traffic
+---
+Warszawa, 2020 rok, decyzją 1200-osobowej Rady Warszawy strefa płatnego parkowania została powiększona. Na północy sięga do Nowego Dworu Mazowieckiego, na Południu do Konstancina. Na zachodzie do Ożarowa, a na Wschodzie do Mińska. Radni uzasadnili tę decyzję tym, że jest taka potrzeba.
+
+To przyszłość, na razie poszerzyli strefę o Muranów, Filtry, część Ochoty i Pragi. [Tutaj](http://www.rp.pl/artykul/24,995872-240-nowych-parkomatow-w-Warszawie--Strefa-platnego-parkowania-powiekszona.html) szczegóły. Powstanie 240 nowych parkomatów, oczywiście takich w które trzeba wpisać numer rejestracyjny, żeby urzędnik wiedział gdzie  parkuje jakie auto. Od razu widać w którym kierunku to zmierza. Ponieważ brakuje pieniędzy w budżecie Warszawy w kolejnych latach będą kolejne rozszerzenia strefy płatnego parkowania. Ja proponowałem, żeby zamiast takich działań, wprowadzić miejsca płatnego parkowania business class. Poniżej jeszcze raz ta propozycja. Jest o wiele lepsza niż rozszerzanie strefy, nie wymaga inwestycji w nowe parkomaty i tworzy miejsca pracy.
+
+<!--more-->
+
+Nadchodzą chude czasy dla samorządów, szczególnie w miastach. Dochody podatkowe będą spadać, bo gospodarka wchodzi w kilkuletni okres stagnacjo-recesji, co spowoduje obniżenie zatrudnienia i niższe wpływy z PIT. Dalsze podnoszenie opłat związanych w nieruchomościami i cen biletów komunikacji miejskiej może wywołać wielkie niezadowolenie mieszkańców i nawet skutkować tym , że  prezydenta wywiozą na taczce. Dlatego zamiast podnosić opłaty i ryzykować wybuch niezadowolenia, włodarze powinni  zacząć wdrażać innowacyjne modele biznesowe, które rozwiązują problemy mieszkańców, tworzą miejsca pracy i skutkują wysokimi wpływami do kasy miasta. Zilustruję to przykładem opłat za parkowanie pobieranych przez miasta. Polskie miasta są potwornie zakorkowane, bo na skutek chaotycznej zabudowy przestrzennej, zamiast rozwijać się w gęstej zabudowie, miasta „rozlały się” na przedmieścia. A przy tak „rozlanym mieście” utrzymanie gęstej sieci transportu publicznego jest zbyt drogie, więc mieszkańcy muszą jeździć samochodami, czego skutkiem są potworne korki. Tak duży ruch samochodowy powoduje nie tylko korki, ale także problemy z parkowaniem. Są takie rejony w miastach, gdzie przyjeżdża się na spotkanie i chciałby się zaparkować na godzinę, dwie, ale nie ma miejsca. Nigdy. Wtedy są stresy, człowiek się spóźnia, co czasami psuje atmosferę spotkania. Gdy władze miasta zaobserwują że popyt na miejsca parkingowe znacznie przekracza podaż, wtedy podnoszą opłaty.  Ale w trudnych czasach to uderza boleśnie w małe firmy i w osoby które z trudem wiążą koniec z końcem. Poza tym aby zrównoważyć popyt i podaż, podwyżka musiałaby być bardzo duża, co tym bardziej uderzyłoby w biedniejszą część mieszkańców i w małych przedsiębiorców.
+
+A można inaczej. Jak? Otóż można zaczerpnąć pomysł od linii lotniczych, które sprzedają miejsca w klasie ekonomicznej i w klasie biznes. Proponuję, żeby miasta zrobiły podobnie. W miejscach gdzie najtrudniej zaparkować, gdzie popyt na parkowanie – szczególnie krótkoterminowe – znacznie przekracza podaż, trzeba wydzielić część miejsc parkingowych i stworzyć miejsca parkingowe business class. Jeżeli godzina parkowania na zwykłym miejscu kosztuje na dwa złote, to na miejscu business class kosztowałoby na przykład dziesięć złotych. Oczywiście miejsca business class oferowałyby  dodatkowe usługi. Miałyby swojego opiekuna, certyfikowanego przez miasto, który pilnowałby samochodu, w szczególności żeby nie wkładano za wycieraczki wyjątkowo wkurzających agencji prostytutek, nie wiadomo czemu nazywanych agencjami towarzyskimi. Dodatkowo, jeżeli samochód byłby zaparkowany dłużej niż dwie godziny, to przysługiwałoby darmowe ręczne mycie, a przy czterech godzinach również opcjonalne sprzątanie wnętrza.  Można sobie wyobrazić także inne usługi, z pewnością każdy kierowca mógłby wymyśleć kolejne.   Taka zmiana, jeżeli wdrożona w sposób przemyślany, poprzedzony analizami popytu i podaży miałaby kilka ciekawych skutków. Po pierwsze w miejscach gdzie jest olbrzymi popyt na krótkoterminowe parkowanie, byłoby więcej dostępnych miejsc, więc osoby w wielkim pośpiechu byłyby zadowolone, że mogą zaparkować samochód w miejscu, w którym do tej pory było to prawie niemożliwe. I jeszcze mają dodatkowe usługi, w postaci umycia karoserii, felg, wymiany żarówki lub sprzątania wnętrza. Dochody miasta by wzrosły, bo zakładając sensowne obłożenie takich miejsc, mogłyby one generować 3-4 krotnie większe dochody niż typowe miejsce parkingowe. Z czego na przykład połowę mógłby zatrzymać opiekun miejsc parkingowych business class. Załóżmy, że taka osoba opiekuje się trzema miejscami parkingowymi business class.  Przy obłożeniu przez 8 godzin dziennie, jedno miejsce da przychód 80 złotych, a trzy 240 złotych dziennie. Więc opiekun mógłby otrzymać połowę tej kwoty, czyli 120 złotych, w formule prowizyjnej, co przy 22 dniach roboczych w miesiącu oznaczałoby wynagrodzenie około 2440 złotych miesięcznie. Znacznie więcej niż pensja minimalna i więcej niż pensja strażnika miejskiego. A do tego dochodzą jeszcze ewentualne napiwki za dodatkowe usługi lub ich wysoką jakość. A miasto miałoby z jednego miejsca 80 złotych dziennie, zamiast 20 złotych.
+
+Podsumujmy. W wyniku wdrożenia tego pomysłu mamy zadowolonych zamożnych i spieszących się kierowców, którzy do tej pory nie mogli zaparkować, a teraz mogą. Co prawda płacą więcej, ale nie spóźniają się na spotkanie i otrzymują dodatkowe usługi. Ponadto zostaną stworzone nowe miejsca pracy, które utrzymują się z opłat wnoszonych przez zamożne osoby lub firmy które stać na wysokie opłaty za parkowanie.  I wzrosną dochody miast z opłat parkingowych. Warto spróbować.
